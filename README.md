@@ -1,7 +1,7 @@
 # Hi 👋, I'm Gajendra Singh
 **A passionate software developer || software Engineer**
 
-Email Me 👉 ✉️ **try.gajju9358@gamil.com** For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **dev.gajju9358@gamil.com** For Collaboration/Project or Anything Else. 😊😊
 
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 😄 **Pronouns:** mr gajendra
