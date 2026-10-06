@@ -1,5 +1,5 @@
 # Hi 👋, I'm Gajendra Singh
-**A passionate software developer || software Engineer**
+**software developer || software Engineer**
 
 Email Me 👉 ✉️ **dev.gajju9358@gamil.com** For Collaboration/Project or Anything Else. 😊😊
 
